@@ -1,1 +1,1 @@
-### im too lazy to descrive me here, kk?
+### im too lazy to write here, kk?
